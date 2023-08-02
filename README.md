@@ -6,8 +6,10 @@ Meu Nome é Andre Luiz
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-  ### Voce entrar em contato comigo 📫
+  ### Você entrar em contato comigo 📫
 
   andre.alves.fernandes@escola.pr.gov.br
   
   @andrezinho_da_044
+
+https://media.tenor.com/w2okgCJANeoAAAAi/groovin-fortnite.gif
