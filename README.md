@@ -8,9 +8,5 @@ Meu Nome é Andre Luiz
 
   ### Você entrar em contato comigo 📫
 
-  andre.alves.fernandes@escola.pr.gov.br
-  
-  @andrezinho_da_044
-
 ![](https://media.tenor.com/w2okgCJANeoAAAAi/groovin-fortnite.gif)
  
